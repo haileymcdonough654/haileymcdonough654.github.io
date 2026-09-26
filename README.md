@@ -1,7 +1,7 @@
 # haileymcdonough654.github.io
 # Welcome to My GitHub Page
 
-![Hailey](IMG_20260903_181122.jpg)
+<img src="IMG_20260903_181122.jpg" alt="Hailey" width="250">
 
 Hello!  My name is Hailey!
 
