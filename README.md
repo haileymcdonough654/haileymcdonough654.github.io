@@ -1,6 +1,8 @@
 # haileymcdonough654.github.io
 # Welcome to My GitHub Page
 
+![Hailey](IMG_20260903_181122.jpg)
+
 Hello!  My name is Hailey!
 
 I am a computer science major at Boise State University.
