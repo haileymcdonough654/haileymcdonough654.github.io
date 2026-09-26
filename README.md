@@ -30,10 +30,8 @@ Some of the projects I've worked on include:
 
 ## A Little About Me
 
-**I am learning as I go.**
-
-There are times when I get a new concept right away, and other times I have to make a few mistakes and keep trying before it actually clicks, and that is okay.  I am learning to appreciate the small wins, they are what keeps me moving forward!
+My husband and I moved to Boise in 2015, never to look back!  We have 8 year old boy/girl twins that just started 3rd grade and keep us very busy!  In my spare time I love to cook and spend time with my family and friends.  My favorite hobbies are:  skiing, hiking, and cooking.  
 
 ## My Goal
 
-*Keep learning.  Keep improving.  Celebrating the small wins.*
+To keep challenging my self and never stop learning new things, and to set a good example for my kids by showing them that it's never too late to learn something new!
